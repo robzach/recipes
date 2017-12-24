@@ -11,7 +11,8 @@ Lay the eggplant slices on cookie pans.
 
 In a bowl, mix
 
-**~1/2 C balsamic vinegar* and
+**~1/2 C balsamic vinegar** and
+
 **~1/2 C olive oil**,
 
 using a whisk to mix them. Then use a pastry brush to apply this to the eggplant. Turn each slice over and repeat.
