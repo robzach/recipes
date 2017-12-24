@@ -1,56 +1,57 @@
 # Mother's Eggplant Mozzarella ("muzzarella")
 as taught to her eldest in the kitchen on December 23rd, 2017
 
-Take
+*Serves 4 people.*
+
 
 **3 eggplants**
 
-wash their skin, dry, cut into rounds about 3/4" thick, discard ends without seeds.
+wash skin & dry, cut into rounds about 3/4" thick, discard ends without seeds.
 
-Lay the eggplant slices on cookie pans. 
+Place eggplant slices on cookie pans. 
 
-In a bowl, mix
+Whisk together:
 
 **~1/2 C balsamic vinegar** and
 
-**~1/2 C olive oil**,
+**~1/2 C olive oil**
 
-using a whisk to mix them. Then use a pastry brush to apply this to the eggplant. Turn each slice over and repeat.
+Use a pastry brush to apply this to the eggplant. 
 
 **Salt and pepper** the slices, with emphasis on pepper.
 
-Bake the eggplant slices for about 22 minutes at 370ºF. They're done when the eggplant yields to a fork and is relatively soft, but not rubbery.
+Turn each slice over and on the other side repeat the application of the oil/vinegar and salt and pepper.
 
-Chop up
+Bake for 25 minutes at 370ºF. They're done when the eggplant yields to a fork and is relatively soft, but not rubbery.
 
-**1 jar sundried tomatoes** (drained of oil)
+## While the eggplant is cooking
 
-and combine in a mixing bowl with
+### Combine in a mixing bowl:
+
+**1 jar sundried tomatoes** chopped and drained of oil,
 
 **~3 ozs. tomato paste**,
 
-mixing these together with a spoon.
+**3 cloves of garlic**, minced.
 
-To this, add
+Add
 
-**1–2 ozs. old red wine**
+**2–3 ozs. old red wine**,
 
-until when you stir it around it's a soft, mushy mix.
+until it's got the consistency of a thick sauce.
 
-Cut 
+### Cut 
 
-**fresh mozzarella ball** 
+**2 fresh mozzarella balls** 
 
-into slices ~1/4" thick, and lay the slices right onto the eggplant slices; they should be about the same size as the eggplant slices.
+into slices ~1/4" thick. They should be about the same size as the eggplant slices.
 
-Spoon the sundried tomato mush onto the mozzarella slices, and add some
+## To each cooked eggplant slice, add:
 
-**chopped garlic**
+A mozzarella slice, and a good dollop of tomato mush.
 
-into the mix as well. Sprinkle
+Top with
 
 **Parmisiano Reggiano**
 
-onto the top of the tomato mush.
-
-Bake for about 5 minutes at 370ºF, just to melt the mozzarella.
+Bake for 5 minutes more at 370ºF, just to melt the mozzarella.
