@@ -6,7 +6,7 @@ as taught to her eldest in the kitchen on December 23rd, 2017
 
 **3 eggplants**
 
-wash skin & dry, cut into rounds about 3/4" thick, discard ends without seeds.
+wash skin & dry, cut into rounds about 1/2" thick, discard ends without seeds.
 
 Place eggplant slices on cookie pans. 
 
