@@ -12,8 +12,7 @@ Place eggplant slices on cookie pans.
 
 Whisk together:
 
-**~1/2 C balsamic vinegar** and
-
+**~1/2 C balsamic vinegar** and<br>
 **~1/2 C olive oil**
 
 Use a pastry brush to apply this to the eggplant. 
@@ -28,10 +27,8 @@ Bake for 25 minutes at 370ºF. They're done when the eggplant yields to a fork a
 
 ### Combine in a mixing bowl:
 
-**1 jar sundried tomatoes** chopped and drained of oil,
-
-**~3 ozs. tomato paste**,
-
+**1 jar sundried tomatoes** chopped and drained of oil,<br>
+**~3 ozs. tomato paste**,<br>
 **3 cloves of garlic**, minced.
 
 Add
