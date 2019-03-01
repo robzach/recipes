@@ -24,7 +24,7 @@ Add
 Stir in
 
 **6 C vegetable stock** and<br>
-** 2 sweet potatoes or yams (about a pound), peeled and cut into thick slices**,
+**2 sweet potatoes or yams (about a pound), peeled and cut into thick slices**,
 
 bring to a boil, and lower heat so soup bubbles gently. Partially cover the pan and cook, stirring occasionally, until the potatoes are just tender, about 10 minutes.
 
