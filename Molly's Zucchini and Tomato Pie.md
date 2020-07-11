@@ -10,7 +10,7 @@ and preheat oven to 375ºF.
 
 Meanwhile, thinly slice
 
-**1 large zucchinis**,<br>
+**1 large zucchini**,<br>
 **2 medium tomatoes**, and<br>
 **1/2 large onion.**
 
