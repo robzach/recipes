@@ -30,7 +30,7 @@ Once the crust is ready, place it into a pie dish. Poke at the bottom of it with
 
 ## Build a layer
 
-Build a layer of zucchini slices, overlapping a bit, on bottom. Then add some onion slices on top, and then tomato slices on top of that.
+In the pie crust, build a layer of zucchini slices, overlapping a bit. Then add some onion slices on top of the zucchini, and then tomato slices on top of that.
 
 Drizzle hot olive oil from the skillet onto the layer, using a spatula to transfer garlic pieces if they don't flow on their own.
 
@@ -40,7 +40,7 @@ Squeeze some
 
 over the layer, and add some 
 
-**sliced parmesan** 
+**sliced parmesan**
 
 on top as well.
 
