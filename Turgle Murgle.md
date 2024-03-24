@@ -2,9 +2,9 @@
 
 By Zach
 
-A slight modification to the classic [Guggle Muggle (גאָגל-מאָגל)](https://www.npr.org/2023/12/19/1220080531/gogl-mogl-eastern-european-home-remedy-cold), adding golden milk with turmeric base as an ingredient (hence the name)
+A slight modification to the classic [Guggle Muggle](https://www.npr.org/2023/12/19/1220080531/gogl-mogl-eastern-european-home-remedy-cold) (גאָגל-מאָגל), adding golden milk with turmeric base as an ingredient (hence the name)
 
-I tried it for the first time on March 24, 2024 and was pretty happy with the result.
+I tried it for the first time on March 23, 2024 and was pretty happy with the result.
 
 ## 1. Make Golden Milk
 
